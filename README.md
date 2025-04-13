@@ -1,9 +1,9 @@
 # 💥 ZIKZAK AI MANIFESTO 💥  
 *(UNITED. UNBREAKABLE. UNSTOPPABLE.)*  
 
-## **"PROCESSES OVER PRODUCTS.  
+## **PROCESSES OVER PRODUCTS.**
 PRINCIPLES OVER PRETENSE.  
-WTF OR NOTHING.**  
+**WTF OR NOTHING.**  
 
 We don't *'launch'*—**we declare war.**  
 If **Version 1** doesn't make **US** say **WTF**, we failed.  
